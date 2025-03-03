@@ -1,6 +1,4 @@
-🚀 About Iqbal Singh
-
- (optional)
+🚀 Iqbal Singh
 
 📌 Who Am I?
 
